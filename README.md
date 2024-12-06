@@ -1,10 +1,10 @@
 51黑料最新地址更新于2024年12月06日
 
-51黑料最新地址 https://51hl17.com （请复制到浏览器打开）
+51黑料最新地址 https://51hl18.com （请复制到浏览器打开）
 
 永久地址（需VPen、科学上网） https://51hl.vip （请复制到浏览器打开）
 
-加入微信扣扣粉丝群 https://51hl17.com?path=/qun.html （请复制到浏览器打开）
+加入微信扣扣粉丝群 https://51hl18.com?path=/qun.html （请复制到浏览器打开）
 
 Telegram官方用户群 https://t.me/cg52_day（请复制到浏览器打开）
 
